@@ -19,5 +19,5 @@ With my skills and experience in consultative, technical customer conversations 
 Sincerely,
 
 # Sophie de Castro
-## sophiedecastro13@gmail.com | 617-817-1590 | linkedin.com/in/sdc13
+## sophiedecastro13@gmail.com | 617-817-1590 | [linkedin.com/in/sdc13](https://www.linkedin.com/in/sdc13/)
 
